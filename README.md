@@ -1,1 +1,1 @@
-![image alt](https://github.com/kwakyn/lab-1/blob/02afaac9a0cc6b81ace364a8bfa88d43a55eacfd/9f59d768ded34242d7fa1958285cca12.jpg)
+![image alt](https://github.com/kwakyn/lab-1/blob/b0f466407ca73bcb5401dee89bd8382ccb4d1b46/f8bda0e3-70af-437f-ba54-29ee1ee59f89.jfif)
